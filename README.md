@@ -1,4 +1,5 @@
 Hi im Sterzhan, you can call me sterz!! 🩵
+
 i am a shy person at first but will warm up!
 
 i love drawing, my persona Sterzhan... <3
