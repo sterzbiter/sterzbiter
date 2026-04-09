@@ -2,7 +2,7 @@ Hi im Sterzhan, you can call me sterz!! 🩵
 
 i am a shy person at first but will warm up!
 
-i love drawing,playing guitar, and my persona Sterzhan... <3
+i love drawing, playing guitar, and my persona Sterzhan... <3
 
 im currently building on my regiment called dazed ' disco into a nice community for pony town players!
 
