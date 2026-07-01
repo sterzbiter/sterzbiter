@@ -17,6 +17,8 @@ my pronouns are he/him but they/them works too!
 i do have anxiety, and go semi verbal if my brains overloaded or if im overstimulated, im also pretty sensitive.
 
 i do have ocastional rouch trigger (OTD) and can go non/semi verbal sometimes, so bare with me on those days!
+
+https://artfight.net/~Anklebiterr
 <!--
 **sterzbiter/sterzbiter** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
