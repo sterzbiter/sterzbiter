@@ -10,7 +10,7 @@ im also learning how to draw in new art styles, and adding backgrounds to my art
 
 you can ask me about anything, but my brain goes brr sometimes...
 
-you can find me better to talk to on discord: venombiter
+you can find me better to talk to on discord: anklebiterrz
 
 my pronouns are he/him but they/them works too!
 
